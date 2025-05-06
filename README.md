@@ -8,7 +8,7 @@ My name is Yurii Balanduik (HE/HIS):
 - 🏕️ I love the mountains. For me, it is a place of fond memories.
 - ✈️ I love travelling, especially driving a car for this time. For me, this is the greatest holiday.
 
-📫 Reach out: [LinkedIn](https://www.linkedin.com/in/yurii-balandiuk-670a35322/)  |   [Instagram](https://www.linkedin.com/in/yurii-balandiuk-670a35322/](https://www.instagram.com/_appwy/profilecard/?igsh=MXF3cG5meWI5ZTVoYw==))
+📫 Reach out: [LinkedIn](https://www.linkedin.com/in/yurii-balandiuk-670a35322/)  |   [Instagram](https://www.instagram.com/_appwy/profilecard/?igsh=MXF3cG5meWI5ZTVoYw==)
 
 <br>
 <br>
